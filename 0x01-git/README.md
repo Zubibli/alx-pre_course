@@ -1,1 +1,1 @@
-jw.org
+God help me
